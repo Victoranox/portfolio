@@ -2,7 +2,7 @@
 
 #### [cylka.ca](http://cylka.ca/)
 
-![](PortraitBlueSM.jpg)
+![](PortraitBlueSM.png)
 
 I left my forest behind to enrich my art with the people of the city.
 I strive to help others with my art, help them speak their minds and showcase their creations trough vibrant visuals and moving pictures.
