@@ -11,3 +11,7 @@ Maybe I can lend you a Hand?
 - **[hello@cylka.ca](mailto:hey@cylka.ca)**
 - [GitHub](https://github.com/Victoranox)
 - [Blog](http://cbleszynski.tumblr.com/)
+
+---
+
+© Cecilia Bleszynski 2017
